@@ -2,7 +2,8 @@
 
 A curated archive of my archival, genealogical, and photographic work — organized as a small museum of people and projects.
 
-# Exhibits
+# Wings
+
 ** Light & Lens**  
 Photographic and optical material — slides, prints, and the cameras that made them.  
 *Roth Glass Lantern Slides · E.H. Pettler's Voigtländer · Gwen's Photos*
