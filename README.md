@@ -9,7 +9,7 @@ Photographic and optical material — slides, prints, and the cameras that made 
 
 ** Lives & Lineages**  
 Genealogical and biographical research into individuals and families.  
-*Maj. Floyd J. Pell · Hammerschmidt & Vorgang · Ludwig Hertenstein Family · 
+*Maj. Floyd J. Pell · Waiting in Paris · Ludwig Hertenstein Family · 
 Frieda Groussard · The Halter Address Book*
 
 ** Collections & Holdings**  
